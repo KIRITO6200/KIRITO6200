@@ -75,7 +75,7 @@ I'm open to working on:
 
 ## 📫 Contact Me  
 📧 Email: **youssefjahaz2003@gmail.com**  
-💼 LinkedIn: *(add your link here)*  
+💼 phone numbre : +212 766591471 
 
 ---
 
